@@ -22,6 +22,7 @@
 ![](https://i.imgur.com/t0D4pFw.png)
 ![](https://i.imgur.com/Hmf3bXu.png)
 
-# [Unnamed skin (Instafade colored hitcircles + louder hitsounds)](https://drive.google.com/file/d/1G-wZ0DYJhAUiezryWeZMI-TJFaoKv2yx/view?usp=sharing)
+# [Unnamed skin (Instafade colored hitcircles + louder hitsounds)](https://drive.google.com/file/d/1E87PSwKcWSzFmVd7FOe4-ux6V-qzgiON/view?usp=sharing)
 
-![](https://i.imgur.com/sVY982e.png)
+![](https://i.imgur.com/U6DAmxY.png)
+![](https://i.imgur.com/HrE9WZe.png)
